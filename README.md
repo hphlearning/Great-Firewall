@@ -127,7 +127,7 @@
   
 - 所有套餐均为 **永久流量** **不限速** **不限制设备个数** **无到期时间** **流媒体播放**
 
-**飞鸟云**：**[[https://bit.ly/3d4rOlU](https://feiniaoyun.xyz/#/register?code=GEQS8eY2)]**
+**[飞鸟云](https://feiniaoyun.xyz/#/register?code=GEQS8eY2)**：**[[https://bit.ly/3d4rOlU](https://feiniaoyun.xyz/#/register?code=GEQS8eY2)]**
 
 - 节点包括 港 台 美 日 韩 新加坡 等
 
