@@ -21,7 +21,7 @@
 ## 推荐
 
 
-**八戒**：**[[https://bit.ly/3EYK64a](https://bajie.one/#/register?code=30AHo62g)]**
+**[八戒](https://bajie.one/#/register?code=30AHo62g)**：**[[https://bit.ly/3EYK64a](https://bajie.one/#/register?code=30AHo62g)]**
 
 - 节点全部为专线
 
