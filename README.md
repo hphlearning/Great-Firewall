@@ -21,7 +21,7 @@
 ## 推荐
 
 
-**八戒**：**[https://bit.ly/3EYK64a]**
+**八戒**：**[[https://bit.ly/3EYK64a](https://bajie.one/#/register?code=30AHo62g)]**
 
 - 节点全部为专线
 
@@ -52,7 +52,7 @@
 
 
 
-**茶猫**：**[https://bit.ly/3DkDOdT]**
+**[茶猫](https://teacat1.com/#/register?code=qqHNaxeP)**：**[[https://bit.ly/3DkDOdT](https://teacat1.com/#/register?code=qqHNaxeP)]**
 
 - 节点包括 港 台 美 日 新加坡 土耳其等有专线节点可用。
 
@@ -76,7 +76,7 @@
 
 
 
-**简单云**：**[https://bit.ly/3CyQa26]**
+**[简单云](https://www.spcloud.me/index.php#/register?code=myoLmyGa)**：**[[https://bit.ly/3CyQa26](https://www.spcloud.me/index.php#/register?code=myoLmyGa)]**
 
 - 节点包括 港 台 美 日 韩 新加坡 等
 
@@ -102,7 +102,7 @@
 
 
 
-**魔戒**：**[https://bit.ly/3lzOo7b]**
+**[魔戒](https://mojie.best/#/register?code=fvVGu88F)**：**[[https://bit.ly/3lzOo7b](https://mojie.best/#/register?code=fvVGu88F)]**
 
 - 节点包括 港 台 美 日 新加坡 土耳其 阿根廷 柬埔寨 马来西亚等
 
