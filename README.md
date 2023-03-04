@@ -76,7 +76,7 @@
 
 
 
-**[简单云](https://www.spcloud.me/index.php#/register?code=myoLmyGa)**：**[[https://bit.ly/3CyQa26](https://www.spcloud.me/index.php#/register?code=myoLmyGa)]**
+**[简单云](https://www.spcloud.cc/index.php#/register?code=myoLmyGa)**：**[[https://www.spcloud.cc/index.php#/register?code=myoLmyGa)]**
 
 - 节点包括 港 台 美 日 韩 新加坡 等
 
